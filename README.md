@@ -1,0 +1,2 @@
+# ujicoba
+jangan di tiru
